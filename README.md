@@ -60,13 +60,40 @@
 ![](https://static.wikia.nocookie.net/omori/images/1/11/%D0%9E%D0%9C%D0%9E%D0%A0%D0%98%D0%9F%D0%9E%D0%94%D0%94%D0%90%D0%92%D0%90%D0%A2%D0%AC%D0%A1%D0%AF.gif/revision/latest?cb=20210727051448&path-prefix=ru) ![image](https://github.com/user-attachments/assets/f5256184-a2c0-49f1-92be-04e69e0b9769)![image](https://github.com/user-attachments/assets/70430626-bd37-448b-bbda-0685b6483e70)![](https://64.media.tumblr.com/a37adbbad830d4d628632ec92129d62f/b36eaec0d8e2248b-cf/s100x200/debcf22d1d8295697c475e844180ffb17fce74d0.gifv)
 
 
-INTJ ; холерик-меланхолик ; тревожно-избегающий тип привязанности ![](https://camo.githubusercontent.com/07d25d34292481174a37594eff653dd4a46532c32ec1cb1aad7a5826a6857afd/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f38303339383763666434633466303635653762636639656461626636643138392f313733393063316331396363366332392d37362f7337357837355f63312f613937613339663433323866383835366462383031633465316139333935313165313565306639382e67696676)![](https://camo.githubusercontent.com/8addfabdecf9ba47c8eee5cdf93a8401ba5cf61cc7b1729182bf65bd6d736dcf/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f64386232333337316433373761633166613061363032396636386539343334322f633938353332376663623034653236382d32622f7337357837355f63312f613836633533643063393366393037396439666331356233316230626539326465323361396337612e67696676)
+` INTJ ; холерик-меланхолик ; тревожно-избегающий тип привязанности ![](https://camo.githubusercontent.com/07d25d34292481174a37594eff653dd4a46532c32ec1cb1aad7a5826a6857afd/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f38303339383763666434633466303635653762636639656461626636643138392f313733393063316331396363366332392d37362f7337357837355f63312f613937613339663433323866383835366462383031633465316139333935313165313565306639382e67696676)![](https://camo.githubusercontent.com/8addfabdecf9ba47c8eee5cdf93a8401ba5cf61cc7b1729182bf65bd6d736dcf/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f64386232333337316433373761633166613061363032396636386539343334322f633938353332376663623034653236382d32622f7337357837355f63312f613836633533643063393366393037396439666331356233316230626539326465323361396337612e67696676)
 
 
-Я постоянно сижу афк, либо со своими друзьями, поэтому я не горю желанием с кем-либо знакомиться. Но я не прям против, к слову. Если хотите, можете написать в виспер и я по возможности отвечу. ![](https://static.wikia.nocookie.net/omori/images/d/d8/FASunny.gif/revision/latest?cb=20210801113145&path-prefix=ru)
+` Я постоянно сижу афк, либо со своими друзьями, поэтому я не горю желанием с кем-либо знакомиться. Но я не прям против, к слову. 
+
+` Если хотите, можете написать в виспер и я по возможности отвечу. ![](https://static.wikia.nocookie.net/rusomori/images/9/92/Sunny_Stab_%28Day%29.gif/revision/latest?cb=20220703114938&path-prefix=ru)
 
 
 ---------------
 
 
-А еще я Санни кинни, у меня синдром навязчивых грез и ...........................
+![](https://64.media.tumblr.com/4366f63397aa3ce1d1738ceb7c01da66/6e5fa368d1601533-98/s75x75_c1/7d9ee0f1b9fa68264b3d566dfbb754b4547f1899.gifv)![](https://64.media.tumblr.com/f8e566e3c3aba6ba6a9786be688c025c/6e5fa368d1601533-bd/s75x75_c1/d32d85d1c747e859dcc4a237d0e895e3a58acc24.gifv)![](https://wilardo.crd.co/assets/images/gallery18/ed9f5261.gif?v=736fa498)![](https://64.media.tumblr.com/697b01b8d47a42477c97274a4fdfa568/c9f852cbea274fe6-53/s75x75_c1/6834c59879f2d284ad7170302a3221ad30989a3b.gifv) А еще я Санни кинни, у меня синдром навязчивых грез и я живу прошлым. ![](https://64.media.tumblr.com/4c85abd370dd95f79ae466873051bdfc/4a0dcd3f71770a8f-5e/s75x75_c1/7492e8fc9318c863e50fbad86c32d12169baf188.gifv)
+
+
+---------------
+
+
+![](https://static.wikia.nocookie.net/rusomori/images/4/4b/OMORI_playing_piano.gif/revision/latest?cb=20220627152823&path-prefix=ru) 
+
+
+# <div align="center"> THAT`S ALL
+
+
+![image](https://github.com/user-attachments/assets/82617489-f38b-41cf-a3e8-ac7989355400)![image](https://github.com/user-attachments/assets/02f9f4ab-e99b-4829-8ece-690db06ea827) Me m who
+
+
+
+
+![](https://static.wikia.nocookie.net/rusomori/images/c/c0/SunnyStressedRed.gif/revision/latest?cb=20220703113449&path-prefix=ru)![image](https://github.com/user-attachments/assets/6a6dd395-e6f0-4868-9038-bbae3c9dca3b) Also me n who
+
+
+
+---------------
+
+
+![](https://static.wikia.nocookie.net/omori/images/7/74/%D0%93%D1%80%D1%83%D0%BF%D0%BF%D0%BE%D0%B2%D1%8B%D0%B5_%D0%9E%D0%B1%D1%8C%D1%8F%D1%82%D0%B8%D1%8F_%D0%9C%D0%93.gif/revision/latest?cb=20210715134908&path-prefix=ru)ㅤㅤㅤㅤME N РОБЛОКС ХАУС <33333 ![image](https://github.com/user-attachments/assets/9029ed7b-7c30-4cb7-b15d-4a42b5c7db71)![](https://64.media.tumblr.com/b67c23fde29ebbc0cafd10d5655763b2/6e5fa368d1601533-e6/s75x75_c1/da9175990e0cd62c79869921ea51632cf4529d1a.gifv)
+
