@@ -83,7 +83,7 @@
 # <div align="center"> THAT`S ALL
 
 
-![image](https://github.com/user-attachments/assets/82617489-f38b-41cf-a3e8-ac7989355400)![image](https://github.com/user-attachments/assets/02f9f4ab-e99b-4829-8ece-690db06ea827) Me m who
+![image](https://github.com/user-attachments/assets/82617489-f38b-41cf-a3e8-ac7989355400)![image](https://github.com/user-attachments/assets/02f9f4ab-e99b-4829-8ece-690db06ea827) Me n who
 
 
 
