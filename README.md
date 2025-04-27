@@ -15,7 +15,7 @@
 
 ---------------
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://wilardo.crd.co/assets/images/gallery27/11e87bfe.gif?v=736fa498)![image](https://github.com/user-attachments/assets/059b82ee-8aa5-46f1-b946-167034151587)![](https://wilardo.crd.co/assets/images/gallery27/11e87bfe.gif?v=736fa498)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://wilardo.crd.co/assets/images/gallery27/11e87bfe.gif?v=736fa498)![image](https://github.com/user-attachments/assets/059b82ee-8aa5-46f1-b946-167034151587)![](https://wilardo.crd.co/assets/images/gallery27/11e87bfe.gif?v=736fa498)
 
 
 ![](https://static.wikia.nocookie.net/omori/images/e/e8/%D0%9E%D0%9C%D0%9E%D0%A0%D0%98_%28%D0%91%D0%9E%D0%A1%D0%A1%29_%D0%A4%D0%90%D0%97%D0%90_1.gif/revision/latest?cb=20210727053343&path-prefix=ru)   ![](https://64.media.tumblr.com/989e97a17d7b6979e2b35561639ea5d4/c9f852cbea274fe6-97/s75x75_c1/89e14f96a2034ce6e667e47b5e957e8ea65dbaf0.gifv) ] thinks: игра кстати хуйня на меня выбежал огромнвй пингвин и я от страха кинула мышку на пол
