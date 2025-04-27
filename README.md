@@ -95,5 +95,5 @@
 ---------------
 
 
-![](https://static.wikia.nocookie.net/omori/images/7/74/%D0%93%D1%80%D1%83%D0%BF%D0%BF%D0%BE%D0%B2%D1%8B%D0%B5_%D0%9E%D0%B1%D1%8C%D1%8F%D1%82%D0%B8%D1%8F_%D0%9C%D0%93.gif/revision/latest?cb=20210715134908&path-prefix=ru)ㅤㅤㅤㅤME N РОБЛОКС ХАУС <33333 ![image](https://github.com/user-attachments/assets/9029ed7b-7c30-4cb7-b15d-4a42b5c7db71)![](https://64.media.tumblr.com/b67c23fde29ebbc0cafd10d5655763b2/6e5fa368d1601533-e6/s75x75_c1/da9175990e0cd62c79869921ea51632cf4529d1a.gifv)
+![](https://static.wikia.nocookie.net/omori/images/7/74/%D0%93%D1%80%D1%83%D0%BF%D0%BF%D0%BE%D0%B2%D1%8B%D0%B5_%D0%9E%D0%B1%D1%8C%D1%8F%D1%82%D0%B8%D1%8F_%D0%9C%D0%93.gif/revision/latest?cb=20210715134908&path-prefix=ru)ME N РОБЛОКС ХАУС <33333 ![image](https://github.com/user-attachments/assets/9029ed7b-7c30-4cb7-b15d-4a42b5c7db71)![](https://64.media.tumblr.com/b67c23fde29ebbc0cafd10d5655763b2/6e5fa368d1601533-e6/s75x75_c1/da9175990e0cd62c79869921ea51632cf4529d1a.gifv)
 
