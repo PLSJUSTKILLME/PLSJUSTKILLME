@@ -92,8 +92,28 @@
 
 
 
+![image](https://github.com/user-attachments/assets/479943fe-bf5f-4330-a84b-3ad8c94742fb)![image](https://github.com/user-attachments/assets/7e90e1b0-99b9-4fe9-913a-ecc4e4413085) Костик и Ромчик риал нот фейк
+
+
+
+![](https://static.wikia.nocookie.net/omori/images/7/79/%D0%9C%D0%B0%D1%80%D0%B8_%D0%9C%D0%93_%D0%B1%D0%B5%D0%B3.gif/revision/latest?cb=20210715072724&path-prefix=ru)![](https://static.wikia.nocookie.net/omori/images/7/7e/%D0%93%D0%95%D0%A0%D0%9E%D0%99_%D0%9C%D0%93_%D1%85%D0%BE%D0%B4%D1%8C%D0%B1%D0%B0.gif/revision/latest?cb=20210715094209&path-prefix=ru) Арина и Сашик))
+
+
+
+![image](https://github.com/user-attachments/assets/3561e493-7998-4d82-bdb9-b4d6e1816a4e) Никуся
+
+
+![](https://static.wikia.nocookie.net/omori/images/8/87/KelWalkDW.gif/revision/latest?cb=20210807174905&path-prefix=ru) ФИНН.
+
+
+![](https://static.wikia.nocookie.net/omori/images/4/44/KIMWALK.gif/revision/latest?cb=20250304172548&path-prefix=ru) НИКА НУ КОТОРАЯ ДОТТОЦЕСТ))
+
+
+![](https://static.wikia.nocookie.net/omori/images/e/e7/Pluto_Walk.gif/revision/latest/scale-to-width-down/60?cb=20250326172553&path-prefix=ru) КЛЯНУСЬ, МАРГО.
+
+
 ---------------
 
 
-![](https://static.wikia.nocookie.net/omori/images/7/74/%D0%93%D1%80%D1%83%D0%BF%D0%BF%D0%BE%D0%B2%D1%8B%D0%B5_%D0%9E%D0%B1%D1%8C%D1%8F%D1%82%D0%B8%D1%8F_%D0%9C%D0%93.gif/revision/latest?cb=20210715134908&path-prefix=ru)ME N РОБЛОКС ХАУС <33333 ![image](https://github.com/user-attachments/assets/9029ed7b-7c30-4cb7-b15d-4a42b5c7db71)![](https://64.media.tumblr.com/b67c23fde29ebbc0cafd10d5655763b2/6e5fa368d1601533-e6/s75x75_c1/da9175990e0cd62c79869921ea51632cf4529d1a.gifv)
+![](https://static.wikia.nocookie.net/omori/images/7/74/%D0%93%D1%80%D1%83%D0%BF%D0%BF%D0%BE%D0%B2%D1%8B%D0%B5_%D0%9E%D0%B1%D1%8C%D1%8F%D1%82%D0%B8%D1%8F_%D0%9C%D0%93.gif/revision/latest?cb=20210715134908&path-prefix=ru)ㅤㅤME N РОБЛОКС ХАУС <33333 ![image](https://github.com/user-attachments/assets/9029ed7b-7c30-4cb7-b15d-4a42b5c7db71)![](https://64.media.tumblr.com/b67c23fde29ebbc0cafd10d5655763b2/6e5fa368d1601533-e6/s75x75_c1/da9175990e0cd62c79869921ea51632cf4529d1a.gifv)
 
