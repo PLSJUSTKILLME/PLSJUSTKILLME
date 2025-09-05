@@ -115,9 +115,6 @@
 ![](https://static.wikia.nocookie.net/omori/images/e/e7/Pluto_Walk.gif/revision/latest/scale-to-width-down/60?cb=20250326172553&path-prefix=ru) КЛЯНУСЬ, МАРГО.
 
 
-![](https://static.wikia.nocookie.net/omori/images/2/2f/Berly_Headbutt_Sprite.gif/revision/latest?cb=20220814063121) А-ААА-А-ААА-АНЯ..... ,,,,,,
-
-
 ---------------
 
 
