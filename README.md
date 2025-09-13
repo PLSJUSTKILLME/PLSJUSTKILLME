@@ -46,7 +46,7 @@
 
 # <div align="center"> MY FAV MUSIC ARTISTS ![image](https://github.com/user-attachments/assets/3ec0639a-15b6-4984-bf92-6b1de52700b2)
 
-![](https://64.media.tumblr.com/7aaced61566fa93f0843d56968f18416/7b67f39d57298f21-7e/s75x75_c1/16554cf299170c6f1492d7a790f0a3a0e3736ed4.gifv)![](https://64.media.tumblr.com/7aaced61566fa93f0843d56968f18416/7b67f39d57298f21-7e/s75x75_c1/16554cf299170c6f1492d7a790f0a3a0e3736ed4.gifv) Pyrokinesis ; ЩЕНКИ ; Он Юн ; Дайте Танк (!) ; MAMA RUSSIA ; ПОЛМАТЕРИ ; Электрофорез ; DK ; Комсомольск ![](https://64.media.tumblr.com/7aaced61566fa93f0843d56968f18416/7b67f39d57298f21-7e/s75x75_c1/16554cf299170c6f1492d7a790f0a3a0e3736ed4.gifv)![](https://64.media.tumblr.com/7aaced61566fa93f0843d56968f18416/7b67f39d57298f21-7e/s75x75_c1/16554cf299170c6f1492d7a790f0a3a0e3736ed4.gifv)
+![](https://64.media.tumblr.com/7aaced61566fa93f0843d56968f18416/7b67f39d57298f21-7e/s75x75_c1/16554cf299170c6f1492d7a790f0a3a0e3736ed4.gifv)![](https://64.media.tumblr.com/7aaced61566fa93f0843d56968f18416/7b67f39d57298f21-7e/s75x75_c1/16554cf299170c6f1492d7a790f0a3a0e3736ed4.gifv) Pyrokinesis ; ЩЕНКИ ; Он Юн ; Дайте Танк (!) ; MAMA RUSSIA ; ПОЛМАТЕРИ ; Электрофорез ; DK ; Комсомольск ; ONDA ANDAR ![](https://64.media.tumblr.com/7aaced61566fa93f0843d56968f18416/7b67f39d57298f21-7e/s75x75_c1/16554cf299170c6f1492d7a790f0a3a0e3736ed4.gifv)![](https://64.media.tumblr.com/7aaced61566fa93f0843d56968f18416/7b67f39d57298f21-7e/s75x75_c1/16554cf299170c6f1492d7a790f0a3a0e3736ed4.gifv)
 
 ---------------
 
