@@ -22,7 +22,7 @@
 # <div align="center"> FANDOMS ![image](https://github.com/user-attachments/assets/8a8ac0fd-5ccd-4776-9a21-768cc200eceb)
 
 
-![](https://wilardo.crd.co/assets/images/gallery27/7cba8c82.gif?v=736fa498)![](https://wilardo.crd.co/assets/images/gallery27/7cba8c82.gif?v=736fa498) Genshin Impact ; Honkai: Star Rail ; Path to Nowhere ; Reverse: 1999 ; Evangelion ; Black Lagoon ; Cookie Run: Kingdom ; OMORI ; Death Note ; Saihate Station ; Sally Face ; Attack on Titan ; ST ; Junji Ito ; tpoh ; strinova ; Panty & Stocking ; Killer Chat! ; NSO ; 8:11 ; ZENO REMAKE ; shtdn ![](https://wilardo.crd.co/assets/images/gallery27/7cba8c82.gif?v=736fa498)![](https://wilardo.crd.co/assets/images/gallery27/7cba8c82.gif?v=736fa498)
+![](https://wilardo.crd.co/assets/images/gallery27/7cba8c82.gif?v=736fa498)![](https://wilardo.crd.co/assets/images/gallery27/7cba8c82.gif?v=736fa498) Genshin Impact ; Honkai: Star Rail ; Path to Nowhere ; Reverse: 1999 ; Evangelion ; Black Lagoon ; Cookie Run: Kingdom ; OMORI ; Death Note ; Saihate Station ; Sally Face ; Attack on Titan ; ST ; Junji Ito ; tpoh ; strinova ; Panty & Stocking ; alnst ; Killer Chat! ; NSO ; 8:11 ; ZENO REMAKE ; shtdn ![](https://wilardo.crd.co/assets/images/gallery27/7cba8c82.gif?v=736fa498)![](https://wilardo.crd.co/assets/images/gallery27/7cba8c82.gif?v=736fa498)
 
 ---------------
 
