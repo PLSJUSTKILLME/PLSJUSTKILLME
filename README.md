@@ -22,7 +22,7 @@
 # <div align="center"> FANDOMS ![image](https://github.com/user-attachments/assets/8a8ac0fd-5ccd-4776-9a21-768cc200eceb)
 
 
-![](https://wilardo.crd.co/assets/images/gallery27/7cba8c82.gif?v=736fa498)![](https://wilardo.crd.co/assets/images/gallery27/7cba8c82.gif?v=736fa498) Genshin Impact ; Honkai: Star Rail ; Path to Nowhere ; Reverse: 1999 ; Evangelion ; Black Lagoon ; Cookie Run: Kingdom ; OMORI ; Death Note ; Saihate Station ; Sally Face ; Attack on Titan ; Junji Ito ; tpoh ; Panty & Stocking ; alnst ; Killer Chat! ; NSO ; 8:11 ; The Evillious Chronicles ; ZENO REMAKE ; shtdn ; The Summer Hikaru Died ; Madoka Magica ![](https://wilardo.crd.co/assets/images/gallery27/7cba8c82.gif?v=736fa498)![](https://wilardo.crd.co/assets/images/gallery27/7cba8c82.gif?v=736fa498)
+![](https://wilardo.crd.co/assets/images/gallery27/7cba8c82.gif?v=736fa498)![](https://wilardo.crd.co/assets/images/gallery27/7cba8c82.gif?v=736fa498) Genshin Impact ; Honkai: Star Rail ; Path to Nowhere ; Reverse: 1999 ; Evangelion ; Black Lagoon ; Cookie Run: Kingdom ; OMORI ; Death Note ; Saihate Station ; Sally Face ; Attack on Titan ; Junji Ito ; tpoh ; Panty & Stocking ; alnst ; Killer Chat! ; NSO ; 8:11 ; Married in Red ; The Evillious Chronicles ; ZENO REMAKE ; shtdn ; The Summer Hikaru Died ; Madoka Magica ; dbd ![](https://wilardo.crd.co/assets/images/gallery27/7cba8c82.gif?v=736fa498)![](https://wilardo.crd.co/assets/images/gallery27/7cba8c82.gif?v=736fa498)
 
 ---------------
 
@@ -30,7 +30,7 @@
 
 # <div align="center"> DNI ![image](https://github.com/user-attachments/assets/f8afdb44-84db-46d9-bbc2-a42e9df8edba)
 
-![](https://wilardo.crd.co/assets/images/gallery27/11e87bfe.gif?v=736fa498)![](https://wilardo.crd.co/assets/images/gallery27/11e87bfe.gif?v=736fa498) Толерашки ; аванц//о ; фаны онли гет/млм пейров ; гомофобы ; расизм ; вайтвошеры и блэквошеры ; мизогинисты ; антисы ; противники черного юмора ; 99% фд вувы ; неженки ; русофобы/укрофобы ; ревнивые люди ; романтизация псих. расстройств ; ..дере фаны ; навязчивые люди ; гиперактивные люди ; доксеры ; сексисты ; сандейфажки/аванфажки/скарафажки ; инфантилы ; саша кинни/сашатоны фаны (вы тупорылые удалите интернет) ; фаны м//зеллова (вы реально отсталые, поищите газовую плиту дома) ; роза р//бзух ![](https://wilardo.crd.co/assets/images/gallery27/11e87bfe.gif?v=736fa498)![](https://wilardo.crd.co/assets/images/gallery27/11e87bfe.gif?v=736fa498)
+![](https://wilardo.crd.co/assets/images/gallery27/11e87bfe.gif?v=736fa498)![](https://wilardo.crd.co/assets/images/gallery27/11e87bfe.gif?v=736fa498) Толерашки ; аванц//о ; фаны онли гет/млм пейров ; гомофобы ; расизм ; вайтвошеры и блэквошеры ; мизогинисты ; антисы ; противники черного юмора ; 99% фд вувы ; неженки ; разговоры о политике ; говорите ТОЛЬКО о том как квиров/женщин/мужчин/когоугодно унижают принижают как же они страдали МНЕ ПОХУЙ я всех ненавижу одинаково ; русофобы/укрофобы ; ревнивые люди ; романтизация псих. расстройств ; ..дере фаны ; навязчивые люди ; гиперактивные люди ; доксеры ; сексисты ; сандейфажки/аванфажки/скарафажки ; инфантилы ; саша кинни/сашатоны фаны (вы тупорылые удалите интернет) ; фаны м//зеллова (вы реально отсталые, поищите газовую плиту дома) ; роза р//бзух ; точкоебы/общение онли рофлом ; люди в целом <3 ![](https://wilardo.crd.co/assets/images/gallery27/11e87bfe.gif?v=736fa498)![](https://wilardo.crd.co/assets/images/gallery27/11e87bfe.gif?v=736fa498)
 
 ---------------
 
@@ -38,7 +38,7 @@
 
 # <div align="center">  INT ![image](https://github.com/user-attachments/assets/7fefaafb-c93a-4c8e-975e-7e15b7cfd70a)
 
-![](https://wilardo.crd.co/assets/images/gallery04/df7946a8.gif?v=736fa498)![](https://wilardo.crd.co/assets/images/gallery04/df7946a8.gif?v=736fa498) Мои фд ; роблокс хаус <333 ; фанаты Синьоры ; любители посидеть афк ; спокойные люди ![](https://wilardo.crd.co/assets/images/gallery04/df7946a8.gif?v=736fa498)![](https://wilardo.crd.co/assets/images/gallery04/df7946a8.gif?v=736fa498)
+![](https://wilardo.crd.co/assets/images/gallery04/df7946a8.gif?v=736fa498)![](https://wilardo.crd.co/assets/images/gallery04/df7946a8.gif?v=736fa498) Мои фд ; роблокс хаус <333 ; фанаты Синьоры/Фатуи в целом ; любители посидеть афк ; спокойные люди ![](https://wilardo.crd.co/assets/images/gallery04/df7946a8.gif?v=736fa498)![](https://wilardo.crd.co/assets/images/gallery04/df7946a8.gif?v=736fa498)
 
 ---------------
 
@@ -63,7 +63,7 @@
 ` ![](https://64.media.tumblr.com/4fb277e57f18dceab0ba126547f18fe0/6e5fa368d1601533-d8/s75x75_c1/b40712318def1c5ab8010517be532568f680496e.gifv)![](https://64.media.tumblr.com/7aaa02c0fed572a282e61d60d07d9656/6e5fa368d1601533-8d/s75x75_c1/9ebad4f5985900e415e84c95607394086165bc9e.gifv)"Бᴏᴦ ᴨᴏᴋинуᴧ чᴇᴧᴏʙᴇчᴇᴄᴛʙᴏ ᴛᴏᴧьᴋᴏ иɜ-ɜᴀ ʍᴇня."
 
 
-` INTJ ; холерик-меланхолик ; тревожно-избегающий тип привязанности ![](https://camo.githubusercontent.com/07d25d34292481174a37594eff653dd4a46532c32ec1cb1aad7a5826a6857afd/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f38303339383763666434633466303635653762636639656461626636643138392f313733393063316331396363366332392d37362f7337357837355f63312f613937613339663433323866383835366462383031633465316139333935313165313565306639382e67696676)![](https://camo.githubusercontent.com/8addfabdecf9ba47c8eee5cdf93a8401ba5cf61cc7b1729182bf65bd6d736dcf/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f64386232333337316433373761633166613061363032396636386539343334322f633938353332376663623034653236382d32622f7337357837355f63312f613836633533643063393366393037396439666331356233316230626539326465323361396337612e67696676)
+` INTJ ; sx6 ; холерик-меланхолик ; тревожно-избегающий тип привязанности ![](https://camo.githubusercontent.com/07d25d34292481174a37594eff653dd4a46532c32ec1cb1aad7a5826a6857afd/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f38303339383763666434633466303635653762636639656461626636643138392f313733393063316331396363366332392d37362f7337357837355f63312f613937613339663433323866383835366462383031633465316139333935313165313565306639382e67696676)![](https://camo.githubusercontent.com/8addfabdecf9ba47c8eee5cdf93a8401ba5cf61cc7b1729182bf65bd6d736dcf/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f64386232333337316433373761633166613061363032396636386539343334322f633938353332376663623034653236382d32622f7337357837355f63312f613836633533643063393366393037396439666331356233316230626539326465323361396337612e67696676)
 
 
 ` Я постоянно сижу афк, либо со своими друзьями, поэтому я не горю желанием с кем-либо знакомиться. Но я не прям против, к слову. 
