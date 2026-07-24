@@ -12,7 +12,7 @@
 
 
 ![image](https://github.com/user-attachments/assets/f11387e6-934d-4327-b295-fe9c4b900e2c)
-Меня зовут Нэо/Нико, здесь можно почитать обо мне всякое. ![](https://static.wikia.nocookie.net/omori/images/4/4b/Sunny_Hospital_Gown.gif/revision/latest?cb=20210801113343&path-prefix=ru)
+Меня зовут Сето/Лэн, здесь можно почитать обо мне всякое. ![](https://static.wikia.nocookie.net/omori/images/4/4b/Sunny_Hospital_Gown.gif/revision/latest?cb=20210801113343&path-prefix=ru)
 
 ---------------
 
